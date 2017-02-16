@@ -1,2 +1,2 @@
-# NetfilxAndDyl14.github.io
+# NetflixAndDyl.github.io
 Hi, I am Dylan Francisco
